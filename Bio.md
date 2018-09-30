@@ -1,5 +1,6 @@
 ## Here is my Bio. It is all about me and my travels
 ------------------------------------------------------------------
+![bavaro-beach](https://user-images.githubusercontent.com/43392571/46256346-6de34a80-c4e4-11e8-8496-a48d0760fae2.jpg)
 
 I am origanilly from the Islnad of the Dominican Repulic and I love the island life. 
 
