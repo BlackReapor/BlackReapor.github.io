@@ -13,3 +13,5 @@ There aren't many places I don't want to visit so that leaves many places to be 
 If my plans work out I would like to travel countries in all areas of the world.
 
 [Local Music](https://www.youtube.com/watch?v=zOBucLIuBN0)
+
+[About D.R.](https://www.youtube.com/watch?v=ZaVzcOt_onU)
