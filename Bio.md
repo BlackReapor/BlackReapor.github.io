@@ -6,11 +6,11 @@
 
 [TOPIC](https://github.com/BlackReapor/BlackReapor.github.io/blob/master/Topic.md)
 
-I am origanilly from the Islnad of the Dominican Repulic and I love the island life. 
+I am origanilly from the Island of the Dominican Repulic and I love the island life. 
 
-Ever since I was a kid i have always wanted to travel different parts of the world.
+Ever since I was a kid I have always wanted to travel different parts of the world.
 
-After meeting my husband, we joined the service snd began to travel the world one place at a time.
+After meeting my husband, we joined the service and began to travel the world one place at a time.
 
 There aren't many places I don't want to visit so that leaves many places to be seen.
 
