@@ -31,7 +31,7 @@ These places really opened me up to a whole new world
 
 ![img_0304](https://user-images.githubusercontent.com/43392571/45924747-71a22a80-bf42-11e8-808e-68d06ab13001.JPG)
 
-
+The People and the culture  is a real humblimg experience and I will continue to give this experience to my family
 
 ![img_0677](https://user-images.githubusercontent.com/43392571/45924746-6b13b300-bf42-11e8-91a9-2c7c87315141.JPG)
 
