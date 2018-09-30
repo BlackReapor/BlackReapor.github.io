@@ -4,6 +4,8 @@
 
 [HOME](https://github.com/BlackReapor/BlackReapor.github.io/blob/master/index.md)
 
+[TOPIC](https://github.com/BlackReapor/BlackReapor.github.io/blob/master/Topic.md)
+
 I am origanilly from the Islnad of the Dominican Repulic and I love the island life. 
 
 Ever since I was a kid i have always wanted to travel different parts of the world.
@@ -13,6 +15,9 @@ After meeting my husband, we joined the service snd began to travel the world on
 There aren't many places I don't want to visit so that leaves many places to be seen.
 
 If my plans work out I would like to travel countries in all areas of the world.
+
+
+### LINKS TO LEARN MORE ABOUT DOMINICAN REPUBLIC
 
 [Local Music](https://www.youtube.com/watch?v=zOBucLIuBN0)
 
