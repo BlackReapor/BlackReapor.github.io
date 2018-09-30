@@ -18,3 +18,8 @@ I hope you enjoy this journey with me through my adventures.
 
 
 ![img_1896](https://user-images.githubusercontent.com/43392571/45924682-3b17e000-bf41-11e8-8099-8388c9241e05.JPG)
+
+
+[Bio](
+
+[Topic](
