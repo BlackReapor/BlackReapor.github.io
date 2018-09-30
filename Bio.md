@@ -2,6 +2,8 @@
 ------------------------------------------------------------------
 ![bavaro-beach](https://user-images.githubusercontent.com/43392571/46256346-6de34a80-c4e4-11e8-8496-a48d0760fae2.jpg)
 
+[HOME](https://github.com/BlackReapor/BlackReapor.github.io/blob/master/index.md)
+
 I am origanilly from the Islnad of the Dominican Repulic and I love the island life. 
 
 Ever since I was a kid i have always wanted to travel different parts of the world.
