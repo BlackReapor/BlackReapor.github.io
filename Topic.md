@@ -61,6 +61,8 @@ Not many people in the world get to experience how others live day to day. That 
 
 ![img_2053](https://user-images.githubusercontent.com/43392571/45924721-e1fc7c00-bf41-11e8-982a-7bcfc6ee0ae2.JPG)
 
+Experiencing nature at its finest is an experience that is hard to explain. You have to be there to believe it
+
 ![img_1965](https://user-images.githubusercontent.com/43392571/45924723-e9bc2080-bf41-11e8-942b-1f82aed7a79e.JPG)
 
 ![img_1825](https://user-images.githubusercontent.com/43392571/45924724-efb20180-bf41-11e8-9182-181c6b39b77a.JPG)
