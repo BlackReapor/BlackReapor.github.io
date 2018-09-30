@@ -49,7 +49,7 @@ The People and the culture  is a real humblimg experience and I will continue to
 
 ![img_0886](https://user-images.githubusercontent.com/43392571/45924738-3a337e00-bf42-11e8-82c3-bd2a41ccecc3.JPG)
 
-
+Not many people in the world get to experience how others live day to day. That makes you thankful for what you do have
 
 ![img_2497](https://user-images.githubusercontent.com/43392571/45924705-ba0d1880-bf41-11e8-87d4-dc6c62f00c85.JPG)
 
