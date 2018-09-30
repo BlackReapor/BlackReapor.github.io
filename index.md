@@ -22,4 +22,4 @@ I hope you enjoy this journey with me through my adventures.
 
 [Bio](https://github.com/BlackReapor/BlackReapor.github.io/blob/master/Bio.md)
 
-[Topic](
+[Topic](https://github.com/BlackReapor/BlackReapor.github.io/blob/master/Topic.md)
