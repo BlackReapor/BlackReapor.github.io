@@ -1,5 +1,9 @@
 ## This is my Topic:
 
+
+### Pictures of my Adventures with family 
+
+
 ![img_0090](https://user-images.githubusercontent.com/43392571/45924754-8e3e6280-bf42-11e8-8334-22a78b3e6ba5.JPG)
 
 
@@ -15,7 +19,7 @@
 ![img_0734](https://user-images.githubusercontent.com/43392571/45924745-64853b80-bf42-11e8-841c-2337b8cd29e4.JPG)
 
 
-
+These places really opened me up to a whole new world
 
 ![1mz_1485](https://user-images.githubusercontent.com/43392571/45924756-94344380-bf42-11e8-8768-2c0f626775c4.JPG)
 
